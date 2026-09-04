@@ -29,5 +29,5 @@ We're a specialized consulting firm producing cutting-edge quantitative solution
 
 ## Get in touch
 
-📍 Vancouver, Canada · 🌐 [bluematterscience.com](https://www.bluematterscience.com) · ✉️ [office@bluematterscience.com](mailto:office@bluematterscience.com)
+🌐 [bluematterscience.com](https://www.bluematterscience.com) · ✉️ [office@bluematterscience.com](mailto:office@bluematterscience.com)
 
